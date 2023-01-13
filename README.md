@@ -1,8 +1,5 @@
 - 👋 Hi, I’m @DARKFORM11211
 
-- 📫 How to reach me at Dark_Form#7760
+- 📫 How to reach me at !Dark_Form#6396
 
-<!---
-DARKFORM11211/DARKFORM11211 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+I post some stuff that can be useful just hmu if you have any idoea on stuff you want to see me add
